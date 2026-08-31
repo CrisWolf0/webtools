@@ -1,0 +1,19 @@
+Ingredientes
+
+* 1 taza de yogur natural (endulzado o sin azúcar)
+* 1/3 de taza de jugo de limón colado
+* 1/4 a 1/2 taza de azúcar (al gusto)
+* 1 mango maduro grande (pelado y picado)
+* 1 litro y medio de agua (natural o mineral con gas)
+* Hielos al gusto
+
+Preparación
+
+* Licua el mango: Licúa la pulpa del mango con un poco de agua hasta obtener un puré suave y sin grumos. 
+* Reserva.
+* Haz la base de calpis: En un recipiente hondo, mezcla el jugo de limón con el azúcar hasta que se disuelva un poco.
+* Agrega el yogur: Incorpora el yogur natural y revuelve muy bien con un batidor de globo hasta que la mezcla esté integrada y cremosa.
+* Integra el mango: Añade el puré de mango a la mezcla de yogur y revuelve suavemente.
+* Diluye: Agrega el resto del agua (puedes usar agua mineral para darle un toque efervescente) y mezcla.
+* Sirve: Añade cubos de hielo en vasos altos y sirve esta deliciosa bebida fría
+
